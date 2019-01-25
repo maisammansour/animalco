@@ -1,0 +1,2 @@
+# animalco
+Animalco Privacy Policy
